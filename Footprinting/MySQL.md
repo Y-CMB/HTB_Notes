@@ -1,0 +1,1 @@
+![Exported image](02%20-%20assets/MySQL%201.md/Exported%20image%2020240712140405-0.png)
